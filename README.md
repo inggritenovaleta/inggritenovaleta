@@ -7,3 +7,4 @@
 - 📫 How to reach me: LinkedIn - Inggrit Eunike Novaleta
 - ⚡ Fun fact: My idea of Heaven on Earth is chili sauce and home full of dogs
 
+![Inggrit's github stats](https://github-readme-stats.vercel.app/api?username=inggritenovaleta&show_icons=true&hide_border=true&theme=dracula)
