@@ -1,6 +1,6 @@
 ### Hi Everyone, I'm Inggrit 👋
 
- ![Pink and Green Christmas Personal Email Header](https://user-images.githubusercontent.com/73132384/104963189-43319e80-59da-11eb-8b85-2ed37aaac2bf.png)
+ ![Pink and Tan Flowers Modern Artisan Business X-Frame Banner](https://user-images.githubusercontent.com/73132384/106731149-70ec2980-660f-11eb-92b5-81a98011d364.gif)
 
 My name is **Inggrit Eunike Novaleta**, you can simpy call me **Inggrit**! I am from Indonesia and currently studying **Business Management Marketing** at the **UCLL, Leuven**. I have a growing **interest in IT sector.** 
 
